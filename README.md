@@ -38,4 +38,4 @@ Currently learning:
 
 ## Contacts
 
-Email - timadarkov@mail.ru
+Email - timadarkov@vk.com
